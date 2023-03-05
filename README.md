@@ -1,1 +1,1 @@
-# Yapay-Zeka-Okur-Yazarl-
+# Yapay-Zeka-Okur-Yazarlığı-
